@@ -9,3 +9,8 @@ Hello!! . 🍏 - 🍎 .
 <img width="320" height="320" alt="Image" src="https://github.com/user-attachments/assets/093227ef-c3fa-4a18-8feb-3b38f6c31444" />
 
 but... feel free to int! - 🍀 
+
+
+
+- ... Call me hy , or hyini at all. 🍀  ( call me hyin if we're close friends . ) 🍎
+         🍎 - QueenCard , im hot . 🍏 - 🍀
