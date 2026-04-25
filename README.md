@@ -37,5 +37,4 @@ but... feel free to int! - 🍀
      btw , all of this on PonyTown . Dw / Fsk area .
 
 
-<img src=(<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/39d7993e-1116-4a7e-9ea7-2c89dfea5676)px >](https://garula.itch.io/the-freak-circus)
-  
+
