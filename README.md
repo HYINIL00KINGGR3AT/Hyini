@@ -39,9 +39,4 @@ but... feel free to int! - 🍀
 
 
 
-  <img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/596cb745-7c6f-4774-b6d4-2990ad668494" />
-
-     .
-      .
-       .
-  <img width="100" height="80" alt="Image" src="https://github.com/user-attachments/assets/b70f2220-4aae-4aa8-bcf8-342773f1c4c9/(https://garula.itch.io/the-freak-circus)" /> 
+  
