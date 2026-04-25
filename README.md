@@ -13,4 +13,25 @@ but... feel free to int! - 🍀
 
 
 - ... Call me hy , or hyini at all. 🍀  ( call me hyin if we're close friends . ) 🍎
-         🍎 - QueenCard , im hot . 🍏 - 🍀
+
+
+             🍎 - QueenCard , im hot . 🍏 - 🍀
+
+  Feel safe to:: 🍀
+
+  - Talk with me .
+  - Give itens to me .
+  - Compliment me .
+  - Simple chats .
+
+  DON'T feel safe to:: 🍎 ...
+
+  - Talk bad about me .
+  - Say that my skins are bad .
+  - Inite me to party's .
+  - say inappropriate stuff to me if we don't know each other .
+
+
+  🍀 - . 🍎 [ 🍏 ] - WELL!!!! That's all .
+
+     btw , all of this on PonyTown . Dw / Fsk area . 
